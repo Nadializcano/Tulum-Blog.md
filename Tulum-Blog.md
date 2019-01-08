@@ -14,6 +14,9 @@ I went to Tulum, Mexico on the fall, which is off season but it is still nice an
 * Beach
 * Gran Cenote
 * Xel ha
+>Come see the best natural paradise in the world.
+>
+>and swim with dolphins!
 
 ## Where to stay
 
